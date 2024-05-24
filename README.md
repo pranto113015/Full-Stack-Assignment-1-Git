@@ -66,8 +66,8 @@
 
 ---
 
-Thanks for going through my Portfolio.
-All rights reserved by Anisul Islam @2021
+Thanks for going through my personal Portfolio.
+All rights reserved by Pranto Kumar @2024
 
 ---
 
